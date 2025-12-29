@@ -1,0 +1,2 @@
+# Gung-mahess
+Saya pemula
